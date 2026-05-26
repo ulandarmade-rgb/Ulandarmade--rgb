@@ -1,4 +1,4 @@
-# Ulandarmade--rgb
+# sopet_.
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/https://discord.gg/FE9Zr5QV) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@https://www.tiktok.com/@bierrrr_forever?_r=1&_t=ZS-96fm3Yz6VEL) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@https://youtube.com/@sopett_airi?si=I6L9GG2gMIF0adkU) 
 
